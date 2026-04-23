@@ -1,2 +1,2 @@
-# material_suplementar_IV-STAADE_2026
-Link para acesso ao material suplementar apresentado no IV Simpósio de Tecnologia Aplicada à Análise de Desempenho Esportivo
+# material_suplementar_II-Simposio_de_Biomecanica_2026
+Link para acesso aos materiais suplementares apresentados no II Simpósio de Biomecânica 2026
